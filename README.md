@@ -1,3 +1,3 @@
 - 🧶 Hi, I am Weirdmageddon
 - 👻 I’m interested in C++
-- 👾 Wanna reach me? Discord: weirdmegaddon
+- 👾 Wanna reach me? Discord: 0xweirdmageddon
